@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @DribblingDragon
+- 👀 I’m interested in YouTube gaming and drama
+- 🌱 I’m currently learning buliding a website  
+- 💞️ I’m looking to collaborate on coding gaming
+- 📫 How to reach me contactdribblingdragon@gmai.com  
